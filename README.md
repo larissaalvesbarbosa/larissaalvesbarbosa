@@ -37,7 +37,7 @@ Aqui estão as ferramentas que compõem o meu arranjo atual:
 
 ### 📫 Vamos trocar uma ideia (ou uma recomendação musical)?
 
-* **Instagram:** [@lahcstr_ 🪐]([https://instagram.com/lahcstr_](https://www.instagram.com/lahcstr?igsh=MXFxOThwazBtdndrcg==))
+* **Instagram:** [@lahcstr_ 🪐]((https://www.instagram.com/lahcstr?igsh=MXFxOThwazBtdndrcg==))
 * **O que estou ouvindo agora:** [Minha Playlist Favorita 🎧]([[link-da-sua-playlisaquit-](https://open.spotify.com/user/316ubyonjsvaxyg7gswect423pli?si=XhUm7wmXT6Oc2RpjdMJVXw))
 ---
 
